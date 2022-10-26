@@ -1,0 +1,12 @@
+नमस्ते,क्या हाल है (kya haal hai), आपकी उम्र क्या है (aapakee umr kya hai) , भारत, शुभ प्रभात (shubh prabhaat), बहुत बढ़िया (bahut badhiya), लिंग, कमीने (kameene),मैं आप से प्रेम करता हूँ (main aap se prem karata hoon), 
+jaldi karana  - hurry up,
+Main tumse pyar kartha hoon- I love you,
+bhai - brother,
+tum kya kar rahe ho - what are you doing,
+baap re (बाप रे) - oh my god,
+samalaingik (समलैंगिक)- gay,
+main theek hoon (मैं ठीक हूं) - i am fine,
+ling (लिंग)- dick,
+bada (बड़ा) - big,
+aap (आप) - you,
+aapake paas (आपके पास) - you have
