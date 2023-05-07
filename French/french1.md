@@ -31,3 +31,10 @@ glissade- slide/slip,
 pluie - rain,
 orage - thunderstorm,
 fiers - proud,
+d'été - in summer
+en tant que - as
+par moi même - by myself,
+enseignements - teachings,
+davantage - further,
+coupure - break,
+défi - challenge

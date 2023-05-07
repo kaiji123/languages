@@ -838,6 +838,7 @@ Erkrankung - illness
 Hinrichtung - execution,
 vielmals- many times,
 überzeugen - convince
+erzeugen - generate
 aussuchen - sort out, choose,
 das Dutzend - dozen,
 Arbeitssitzung - work session
@@ -2460,3 +2461,22 @@ Autohändler - car dealer,
 einsteigen - get in,
 hinfahren - to go there,
 Stirn - forehead
+Kanonenschuss - gunshot
+nachträglich - retroactively
+gleichsam - as it were
+Zufall - coincidence
+Einzelheit - detail
+ausschließlich - exclusively
+streng - severe
+bevorzugt - preferred
+leihen - lend
+Schrottplatz - scrap yard
+verrostet - rusted
+ausbauen - remove
+basteln - craft
+Stromanschluss - power connection
+anschließen - connect
+gebraucht - secondhand
+Flohmarkt - flea market
+Notfall - emergency
+gelegentlich - occasionally
