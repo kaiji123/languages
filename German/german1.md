@@ -2480,3 +2480,14 @@ gebraucht - secondhand
 Flohmarkt - flea market
 Notfall - emergency
 gelegentlich - occasionally
+Ausleihen - borrow
+geil - cool,
+Muschi - pussy
+Möse - pussy,
+Kitzler - clitoris,
+unfassbar - incomprehensible
+Fotze - pussy,
+Nutte - hooker
+Pimmel - penis
+Pinsel - penis
+Piller - penis
