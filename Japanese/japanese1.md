@@ -432,3 +432,50 @@
 取り(とり)- collecting
 談笑（だんしょう）- friendly chat
 架空(かくう)ー fictitious
+物流(ぶつりゅう) - product distribution
+拠点（きょてん）- position
+於ける（おける）- at, in
+入荷(にゅうか) - goods received
+出荷（しゅっか）- shipping
+工程（こうてい）- process
+検品　（けんびん）- checking goods
+業務 (ぎょうむ)　ー business,
+従事 (じゅうじ) - being involved in 
+支え (ささえ)- support 
+迅速 (じんそく)　- quick, fast
+お届け (おとどけ)　ー delivery
+欠かせない　（かかせない）- fundamental
+職種(しょくしゅ)　- type of occupation
+身ぐるみ（みぐるみ）- all one's possessions
+回想(かいそう) - recollection
+ちらっと - at a glance
+長閑(のどか) ー peaceful
+葡萄(ぶどう)- grape
+ぼんやり ー　aimlessly​
+ぐったり　ー limply
+最良(さいりょう) - the best, ideal
+蛞蝓(なめくじ)　ー slug
+声変わり(こえがわり)- change of voice
+規範(きはん) - standard
+真っ最中（まっさいちゅう）ー in the middle of
+小太り(こぶとり) - plump
+ブサメン （ぶさめん）-ugly man
+奸計(かんけい) - crafty plan
+床ドン(ゆかどん)　－　pinning someone on the floor by lying on them
+ズキズキ（ずぎずぎ）- throbbingly
+ベテランニート - veteran neet
+親族(しんぞく)　ー relative
+傍若無人(ぼうじゃくぶじん) - indifferent
+当日（とうじつ）ー the day
+おろしちゃって - 下ろす (おろす)　- drop off 
+時間厳守(じかんげんしゅ) - being on time
+ご無沙汰(ごぶさた)　ー long time no see
+梯子(はしご) -　going to several places in a row
+給料(きゅうりょう) - salary
+控え（ひかえ）- backup, reserve
+鬱陶しい(うっとうしい)　ー depressing
+すっぽり - perfectly, completely
+収まる（おさまる）　ー　 to fit 
+寝てるようで起（お）きてる - I seem to be asleep but I'm awake
+腕時計（うでどけい）ー watch
+寝息(ねいき) - breathing of a sleeping

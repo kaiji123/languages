@@ -60,3 +60,21 @@ cualquier - any
 almuerzo - lunch
 tonteria - nuisance
 ninguno - none
+ojala que si - I hope so
+levantate - get up
+vas a llegar tarde - you are going to be late
+me decía - he told me
+tocando la puerta - knocking on the door
+mi cuarto - my room
+yo aún seguía - I was still going
+durmiendo - sleeping
+deje - leave
+amarte - loving you
+volví - I returned
+has esperado tanto - you have waited so long
+mazmorra - dungeon
+oscura/oscuro - dark
+hedor - stench
+cuerpo - body
+podrido - rotten
+viento - wind
