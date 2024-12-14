@@ -479,3 +479,12 @@
 寝てるようで起（お）きてる - I seem to be asleep but I'm awake
 腕時計（うでどけい）ー watch
 寝息(ねいき) - breathing of a sleeping
+世知辛い（せちがらい）ー tough
+備える(そなえる) - prepare
+失恋(しつれん)- broken heart
+神妙(しんみょう)- obedient
+ケバい(けばい)　ー　gaudy
+語尾（ごび）- ending of the word  
+
+優先順位(ゆうせんじゅんい) - priority
+提供(ていきょう)
