@@ -1,3 +1,4 @@
+la pace - peace
 Excellent! **"Giocatori"** means **"players"** — you're really building up your Italian basketball vocabulary now! 🏀
 
 ---
