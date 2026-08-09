@@ -1,3 +1,113 @@
+Nice! You're getting there. Let's break down **"parto intorno"** — it's almost correct, but it needs a little something to sound completely natural.
+
+---
+
+### What you wrote:
+> *"Parto intorno"*
+
+### What it means:
+**"I leave around..."** (but it feels incomplete because you're missing *what time* or *what day*)
+
+---
+
+### Word by word:
+
+| Italian | English |
+|---------|---------|
+| **Parto** | I leave / I'm leaving |
+| **Intorno** | Around / about |
+
+Together: **"I'm leaving around..."**
+
+---
+
+### To make it complete, you need to add a time:
+
+| Italian | English |
+|---------|---------|
+| *Parto intorno alle 3.* | I'm leaving around 3 o'clock. |
+| *Parto intorno a mezzogiorno.* | I'm leaving around noon. |
+| *Parto intorno alle 8 di sera.* | I'm leaving around 8 PM. |
+| *Parto intorno al 15 agosto.* | I'm leaving around August 15th. |
+| *Parto intorno a quell'ora.* | I'm leaving around that time. |
+
+---
+
+### Grammar rule: **Intorno + a**
+
+In Italian, **intorno** (around) is almost always followed by the preposition **a** (to/at) when talking about time:
+
+- *Intorno **alle** 3* = Around 3 (because *le* = the hours, feminine plural)
+- *Intorno **al** 15* = Around the 15th (because *il* = the day, masculine singular)
+- *Intorno **a** mezzogiorno* = Around noon
+
+So:
+- ❌ *Parto intorno 3.* (missing the preposition)
+- ✅ *Parto intorno **alle** 3.*
+
+---
+
+### Common verbs with "intorno":
+
+| Italian | English |
+|---------|---------|
+| *Parto intorno alle...* | I leave around... |
+| *Arrivo intorno alle...* | I arrive around... |
+| *Torno intorno alle...* | I come back around... |
+| *Inizio intorno alle...* | I start around... |
+| *Finisco intorno alle...* | I finish around... |
+
+---
+
+### Examples with your basketball theme:
+
+- *"Parto intorno alle 5 per andare a giocare a pallacanestro."*  
+  = "I'm leaving around 5 to go play basketball."
+
+- *"La partita inizia intorno alle 9."*  
+  = "The game starts around 9."
+
+- *"Torno a casa intorno a mezzanotte dopo la partita."*  
+  = "I come back home around midnight after the game."
+
+---
+
+### Your full story so far (with corrections):
+
+You've built a whole conversation! Let's put it together:
+
+> *"Questo è il mio ricordo favorito. Gli ho chiesto perché gioca a pallacanestro, e lui mi ha risposto: 'Perché è una cosa che amo.' Poi mi ha detto: 'Nei prossimi giorni giocheremo insieme.' Io ho detto: 'Nessun problema, amico mio!' E lui: 'Parto intorno alle 3, ci vediamo in palestra!'"*
+
+**Translation:**
+> "This is my favorite memory. I asked him why he plays basketball, and he replied to me: 'Because it's a thing I love.' Then he told me: 'In the next few days we'll play together.' I said: 'No problem, my friend!' And he: 'I'm leaving around 3, see you at the gym!'"
+
+---
+
+### A quick tip: **parto** vs **vado**
+
+| Italian | English | Use |
+|---------|---------|-----|
+| **Parto** | I leave / I'm departing | Used when going on a trip, leaving a place, or heading somewhere with a specific departure |
+| **Vado** | I go / I'm going | Used more generally for any movement |
+
+- *"Parto per Roma."* = I'm leaving for Rome. (departure)
+- *"Vado a Roma."* = I'm going to Rome. (general movement)
+
+For basketball:
+- *"Parto alle 3 per andare in palestra."* = I leave at 3 to go to the gym. (departure)
+- *"Vado in palestra."* = I'm going to the gym. (general)
+
+---
+
+### So, what were you trying to say?
+
+Were you saying:
+- *"I'm leaving around 3 PM"* → *"Parto intorno alle 3"*
+- *"I'm leaving around the 10th"* → *"Parto intorno al 10"*
+- Or something else?
+
+Let me know and I'll help you polish it! 🏀⏰
+
 Great! **"Prossimi giorni"** means **"next days"** — as in **"the coming days"** or **"the next few days."**
 
 Let's break it down:
