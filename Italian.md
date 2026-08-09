@@ -1,3 +1,115 @@
+Perfect! **"Non molto"** means **"not much"** or **"not very"** — short, simple, and very useful!
+
+---
+
+### What it means:
+
+| Italian | English |
+|---------|---------|
+| **Non molto** | Not much / Not very |
+
+---
+
+### Word by word:
+
+| Italian | English |
+|---------|---------|
+| **Non** | Not |
+| **Molto** | Much / Very |
+
+Together: **"Not much"** or **"Not very"**
+
+---
+
+### Examples:
+
+| Italian | English |
+|---------|---------|
+| *Non molto lontano* | Not very far |
+| *Non molto vicino* | Not very close |
+| *Non molto bene* | Not very well |
+| *Non molto tempo* | Not much time |
+| *Non molto spesso* | Not very often |
+
+---
+
+### Now combine with "più lontano" — **"non molto più lontano"**
+
+This means **"not much farther"**! Perfect for your sentence!
+
+| Italian | English |
+|---------|---------|
+| *Non molto più lontano* | Not much farther |
+
+Examples:
+- *"La palestra non è molto più lontano."* = The gym is not much farther.
+- *"La sua casa è non molto più lontano della mia."* = His house is not much farther than mine.
+- *"Non molto più lontano, c'è un altro campo da basket."* = Not much farther, there's another basketball court.
+
+---
+
+### How to use it with your basketball story:
+
+> *"La palestra non è molto più lontano di quella dove giocavamo prima."*  
+> = "The gym is not much farther than the one where we used to play."
+
+> *"Non molto lontano da qui c'è un campo da pallacanestro."*  
+> = "Not far from here there's a basketball court."
+
+> *"Ci vado spesso, anche se non è molto vicino."*  
+> = "I go there often, even if it's not very close."
+
+---
+
+### "Non molto" vs "Poco" — what's the difference?
+
+| Italian | Meaning | Use |
+|---------|---------|-----|
+| **Non molto** | Not much / Not very | Neutral, factual |
+| **Poco** | Little / A little | Can mean "not enough" or "a small amount" |
+
+Examples:
+- *"Non molto lontano."* = Not very far. (neutral)
+- *"Poco lontano."* = A little far. (slightly more negative, like "a bit too far")
+
+---
+
+### Other useful phrases with "non molto":
+
+| Italian | English |
+|---------|---------|
+| *Non molto grande* | Not very big |
+| *Non molto difficile* | Not very difficult |
+| *Non molto interessante* | Not very interesting |
+| *Non molto contento* | Not very happy |
+| *Non molto sicuro* | Not very sure |
+
+---
+
+### Your full story with "non molto" added:
+
+> *"Questo è il mio ricordo favorito. Gli ho chiesto perché gioca a pallacanestro, e lui mi ha risposto: 'Perché è una cosa che amo tantissimo.' Poi mi ha detto: 'Nei prossimi giorni giocheremo insieme, ma solamente per un'ora.' Io ho detto: 'Nessun problema, amico mio!' E lui: 'Parto domani alle 3. Ci vediamo in palestra!' Ma che cavolo! Ho tantissime cose da preparare prima. Ma lui è il mio migliore amico, e per lui vale la pena. La palestra non è molto più lontano, quindi ci vado volentieri!"*
+
+**Translation:**
+> "This is my favorite memory. I asked him why he plays basketball, and he replied to me: 'Because it's a thing I love so much.' Then he told me: 'In the next few days we'll play together, but only for an hour.' I said: 'No problem, my friend!' And he: 'I'm leaving tomorrow at 3. See you at the gym!' What the heck! I have so many things to prepare before. But he's my best friend, and for him it's worth it. The gym is not much farther, so I go there gladly!"
+
+---
+
+### Pronunciation:
+- **Non molto** = non MOL-toh (stress on the first syllable of *molto*)
+
+---
+
+### So, what were you trying to say?
+
+Were you saying:
+- *"Not very far"* → *"Non molto lontano"*
+- *"Not much farther"* → *"Non molto più lontano"*
+- *"Not much time"* → *"Non molto tempo"*
+- Or something else?
+
+Let me know and I'll help you finish! 🏀🇮🇹
+
 Great job! You're really putting together some beautiful Italian. Let's break down **"essere più lontano"** — this means **"to be farther"** or **"to be more distant"** .
 
 ---
