@@ -1,3 +1,114 @@
+Great! **"Sentito"** means **"heard"** or **"felt"** — it's the past participle of the verb **"sentire"** (to hear / to feel / to taste / to smell). 
+
+Italian *sentire* is a superstar verb because it covers ALL 5 senses (except sight)! Let's break it down:
+
+---
+
+### What "sentito" means:
+
+| Italian | English |
+|---------|---------|
+| **Sentito** | Heard / Felt (masculine singular) |
+| **Sentita** | Heard / Felt (feminine singular) |
+| **Sentiti** | Heard / Felt (masculine plural) |
+| **Sentite** | Heard / Felt (feminine plural) |
+
+---
+
+### The verb "Sentire" — all its meanings:
+
+| Italian | English | Example |
+|---------|---------|---------|
+| *Sentire* | To hear | *"Ho sentito un rumore."* = I heard a noise. |
+| *Sentire* | To feel | *"Sento freddo."* = I feel cold. |
+| *Sentire* | To taste | *"Senti il sapore?"* = Do you taste the flavor? |
+| *Sentire* | To smell | *"Senti che profumo!"* = Smell that fragrance! |
+| *Sentirsi* | To feel (emotion/health) | *"Mi sento bene."* = I feel good. |
+
+---
+
+### How to use "sentito" in a sentence:
+
+| Italian | English |
+|---------|---------|
+| *Ho sentito* | I heard / I felt |
+| *Hai sentito?* | Did you hear? |
+| *Non ho sentito* | I didn't hear |
+| *L'ho sentito* | I heard it / I heard him |
+| *Ti ho sentito* | I heard you |
+| *Mi sono sentito* | I felt (myself) — *"Mi sono sentito male"* = I felt sick |
+
+---
+
+### Common phrases with "sentito":
+
+| Italian | English |
+|---------|---------|
+| *Hai sentito quella cosa?* | Did you hear that thing? |
+| *Non ho mai sentito una cosa del genere!* | I've never heard such a thing! |
+| *L'ho sentito dire.* | I heard it said. |
+| *Ti ho sentito parlare di pallacanestro.* | I heard you talk about basketball. |
+| *Mi sento meglio oggi.* | I feel better today. |
+
+---
+
+### Now let's use it with your basketball story!
+
+Since you just mentioned *"non molto"* (not much), you might be saying:
+
+> *"Non ho sentito molto."* = I didn't hear much.
+
+> *"Non ho sentito molto di quello che ha detto."* = I didn't hear much of what he said.
+
+> *"Hai sentito che ha detto che la palestra non è molto lontana?"* = Did you hear that he said the gym is not very far?
+
+> *"Mi sono sentito felice quando mi ha detto che giocheremo insieme."* = I felt happy when he told me we'd play together.
+
+---
+
+### Your full story with "sentito":
+
+> *"Questo è il mio ricordo favorito. Gli ho chiesto perché gioca a pallacanestro, e lui mi ha risposto: 'Perché è una cosa che amo tantissimo.' Poi mi ha detto: 'Nei prossimi giorni giocheremo insieme, ma solamente per un'ora.' Io ho detto: 'Nessun problema, amico mio!' E lui: 'Parto domani alle 3. Ci vediamo in palestra!' Ma che cavolo! Ho tantissime cose da preparare prima. Ma lui è il mio migliore amico, e per lui vale la pena. La palestra non è molto più lontano, quindi ci vado volentieri. **Ho sentito che domani ci sarà bel tempo, quindi giocheremo all'aperto!**"*
+
+**Translation:**
+> "This is my favorite memory. I asked him why he plays basketball, and he replied to me: 'Because it's a thing I love so much.' Then he told me: 'In the next few days we'll play together, but only for an hour.' I said: 'No problem, my friend!' And he: 'I'm leaving tomorrow at 3. See you at the gym!' What the heck! I have so many things to prepare before. But he's my best friend, and for him it's worth it. The gym is not much farther, so I go there gladly. **I heard that tomorrow the weather will be nice, so we'll play outside!**"
+
+---
+
+### "Sentito" in the news / media:
+
+You'll also hear this a lot:
+
+- *"Sentito in TV"* = Heard on TV
+- *"Ho sentito alla radio..."* = I heard on the radio...
+- *"Ne ho sentito parlare"* = I've heard about it
+
+---
+
+### Pronunciation:
+- **Sentito** = sen-**TEE**-to (stress on the second syllable)
+
+---
+
+### One last tip: "Sentire" vs "Ascoltare"
+
+| Italian | English | Use |
+|---------|---------|-----|
+| **Sentire** | To hear (passive, unintentional) | *"Ho sentito un rumore."* = I heard a noise (without trying). |
+| **Ascoltare** | To listen (active, intentional) | *"Ascolto musica."* = I listen to music (on purpose). |
+
+---
+
+### So, what were you trying to say with "sentito"?
+
+Were you saying:
+- *"I heard"* → *"Ho sentito"*
+- *"Did you hear?"* → *"Hai sentito?"*
+- *"I felt"* → *"Mi sono sentito"*
+- *"I've heard about it"* → *"Ne ho sentito parlare"*
+
+Let me know and I'll help you finish! 🏀🇮🇹
+
 Perfect! **"Non molto"** means **"not much"** or **"not very"** — short, simple, and very useful!
 
 ---
